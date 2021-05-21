@@ -15,4 +15,3 @@ https://drive.google.com/file/d/1DoCAgRivXsNAwURtyhe__SoTk_ORdXkV/view?usp=shari
 ![alt text](https://cdn.discordapp.com/attachments/830118198946693185/839775530885840937/IMG_20210506_150811.jpg)
 
 ## เว็บไซต์
-https://drive.google.com/drive/folders/1G_wXyxL0RuVXG_lPuS7PgvZ2y7KMubLZ?usp=sharing
